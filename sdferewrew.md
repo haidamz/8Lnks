@@ -13,4 +13,4 @@
 <a href='https://oercommons.s3.amazonaws.com/media/editor/461317/7NhUUT.html?rgb'>free amazon gift card generator</a>
 <a href='https://oercommons.s3.amazonaws.com/media/editor/461317/3zLGcn.html?rgb'>free amazon gift card generator</a>
 
-<a href="https://oercommons.s3.amazonaws.com/media/editor/461317/I0ZH9y.html" data-abc="true" class="cerulean">free amazon gift card generator</a>
+<a href="https://oercommons.s3.amazonaws.com/media/editor/461317/I0ZH9y.html" rel="dofollow" data-abc="true" class="alizarin-crimson">free amazon gift card generator</a>
